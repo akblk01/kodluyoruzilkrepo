@@ -1,0 +1,1 @@
+## Bu iki ödevde de bilgilerini paylaştığı için Salih Damar hocama teşekkür ederim.
